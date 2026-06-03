@@ -69,7 +69,7 @@ All surfaces were prepped with acetone and light sanding before any adhesive was
 
 ▶ [Wrist seal installation](https://youtube.com/shorts/PAKPjGTpc_s?feature=share)
 
-▶ [Wrist expander tool in use](https://youtube.com/shorts/PLACEHOLDER) *(link coming)*
+▶ [Wrist expander tool in use](https://youtube.com/shorts/9kmvCae0zJ8)
 
 ---
 
