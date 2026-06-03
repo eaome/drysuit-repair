@@ -75,7 +75,7 @@ All surfaces were prepped with acetone and light sanding before any adhesive was
 
 ### 2. Zipper Replacement
 
-This was the hardest part of the project. The original Tizip zipper had failed. I sourced a replacement — but the new zipper was too long, and the previous replacement attempt (done by someone else before I bought the suit) had used one that was too short.
+This was the hardest part of the project. The original Tizip zipper had failed. I sourced a replacement — but the new zipper was too long, and the previous zipper (done by someone else before I bought the suit) had used one that was too short.
 
 The correct fix required cutting into the trilaminate material itself to gain the length needed to seat the zipper properly. This is not a reversible cut. I measured carefully, made the modification, and the zipper seated cleanly.
 
